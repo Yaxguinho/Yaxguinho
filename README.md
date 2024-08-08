@@ -6,7 +6,4 @@
 - 😄 Pronouns: He/she/they/x
 - ⚡ Fun fact: I can draw >Anything<
 
-<!---
-Yaxguinho/Yaxguinho is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fgifdb.com%2Fgif%2Flui-shirosagi-beyblade-burst-turbo-95j20xu509moabbg.html&psig=AOvVaw1xYpAv-8lTkLQ4ECoigT-x&ust=1723223166080000&source=images&cd=vfe&opi=89978449&ved=0CA4QjRxqFwoTCMCPod_w5YcDFQAAAAAdAAAAABAQ)
